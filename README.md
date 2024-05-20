@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @sledge03
+- 👀 I’m interested in gaming, trucks, and coding.
+- 🌱 I’m currently learning to code.
+- 💞️ I’m looking to collaborate on nothing yet.
+- 📫 How to reach me, via discord. (sledge03)
+- 😄 Pronouns: he/him
